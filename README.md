@@ -1,3 +1,1 @@
-## 이름 : 양민석
-## 누구보다 에버랜드를 좋아한다.
-## 성격 : 밝고 사교적 <br> 취미 : 자전거 타기, 코난 보기 <br> 특기 : 두손을 놓고 티익스프레스 타기
+![image](https://github.com/minseok06/minseok06/assets/121544294/ef500aef-469d-42ae-b9fa-bedbd5e928d7)
