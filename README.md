@@ -1,2 +1,2 @@
-# 시간 참 빠르다
+# 짝사랑중 : ㅇㅁㅈ
 https://sites.google.com/view/yangminseok
